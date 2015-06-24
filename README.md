@@ -1,1 +1,1 @@
-# mcgregors-garden
+Lettuces, French Beans, radishes.
